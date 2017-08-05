@@ -1,2 +1,0 @@
-# dolarindia
-dollar in india
